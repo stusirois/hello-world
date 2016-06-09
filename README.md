@@ -12,7 +12,7 @@ On down to San Antone
 When I was just a baby
 My Mama told me, "Son
 Always be a good boy
-Don't ever play with guns, "
+Don't ever play with guns,"
 But I shot a man in Reno
 Just to watch him die
 When I hear that whistle blowin'
